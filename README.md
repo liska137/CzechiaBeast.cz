@@ -1,1 +1,0 @@
-# CzechiaBeast.cz
